@@ -1,6 +1,6 @@
 - 👋 Fuck you, I’m Orochi !
 - 👀 I’m interested in something I never knew.
-- 🌱 I’m currently learning java at AUT.
+- 🌱 I’m currently learning nothing at Home.
 - 💞️ I’m looking to collaborate on nothing. I'm a little dumb sry.
 - 📫 How to reach me : ali.fam0079@gmail.com, also you can teleport.    AND MORE IMPORTANTLY -- I spam Light Attacks in ForHnonor.
 
