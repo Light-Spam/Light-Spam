@@ -1,4 +1,4 @@
-- 👋 Fuck you, I’m Orochi !
+- 👋 Fuck you, I’m a Trucker !
 - 👀 I’m interested in something I never knew.
 - 🌱 I’m currently learning nothing at Home.
 - 💞️ I’m looking to collaborate on nothing. I'm a little dumb sry.
